@@ -1,12 +1,25 @@
-Title: The End of the World
-Author: Giantboyslit
-Source: https://archiveofourown.org/works/91817246
-Tags: Macro/Micro, Giants, Vore, Apocalypse, Shotacon
+---
+title: "The End of the World"
+author: "Giantboyslit"
+source: "https://archiveofourown.org/works/91817246"
+tags:
+  - "Macro/Micro"
+  - "Giants"
+  - "Vore"
+  - "Apocalypse"
+  - "Shotacon"
+---
 
-Summary:
+# The End of the World
+
+> **Author:** Giantboyslit
+> **Source:** [AO3 Link](https://archiveofourown.org/works/91817246)
+> **Tags:** Macro/Micro, Giants, Vore, Apocalypse, Shotacon
+
+## Summary
 The world is ending. Once a week, millions are spirited away by a god. Thankfully, Mark has his little brother and a friend he made online to help him retain hope...
 
-==================================================
+---
 
 Mark meandered through the grey streets. He enjoyed the absolute silence that preceded each Taking. Just needed to avoid thinking about what came after the silence.
 

@@ -1,13 +1,36 @@
-Title: The Fated Brothers
-Author: Giantboyslit
-Source: https://archiveofourown.org/works/86731621
-Tags: Macro/Micro, Shrinking, Giant Boy, Feet, Foot Fetish, Spit Kink, Vore, Soft Vore, Mouthplay, Slavery, Tinies belong under boys' feet, Shotacon, Luffy Ace and Sabo are kids, male pred, Child pred/Adult prey
+---
+title: "The Fated Brothers"
+author: "Giantboyslit"
+source: "https://archiveofourown.org/works/86731621"
+tags:
+  - "Macro/Micro"
+  - "Shrinking"
+  - "Giant Boy"
+  - "Feet"
+  - "Foot Fetish"
+  - "Spit Kink"
+  - "Vore"
+  - "Soft Vore"
+  - "Mouthplay"
+  - "Slavery"
+  - "Tinies belong under boys' feet"
+  - "Shotacon"
+  - "Luffy Ace and Sabo are kids"
+  - "male pred"
+  - "Child pred/Adult prey"
+---
 
-Summary:
+# The Fated Brothers
+
+> **Author:** Giantboyslit
+> **Source:** [AO3 Link](https://archiveofourown.org/works/86731621)
+> **Tags:** Macro/Micro, Shrinking, Giant Boy, Feet, Foot Fetish, Spit Kink, Vore, Soft Vore, Mouthplay, Slavery, Tinies belong under boys' feet, Shotacon, Luffy Ace and Sabo are kids, male pred, Child pred/Adult prey
+
+## Summary
 Luffy, Ace and Sabo find a shrunken man.
 "If he's a Marine, Luffy can eat him," Ace decides. All three boys give their new toy trials to prove he's a real pirate.
 
-==================================================
+---
 
 "So, what do we do with him?"
 

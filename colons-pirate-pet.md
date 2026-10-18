@@ -1,15 +1,33 @@
-Title: Colon's Pirate Pet
-Author: Giantboyslit
-Source: https://archiveofourown.org/works/86733151
-Tags: Macro/Micro, Elbaph giants, Giant/Tiny Relationships, Giant Boy, Feet, Foot Fetish, NSFW, Vore, Romance, Teaching a giant kid how masturbation works
+---
+title: "Colon's Pirate Pet"
+author: "Giantboyslit"
+source: "https://archiveofourown.org/works/86733151"
+tags:
+  - "Macro/Micro"
+  - "Elbaph giants"
+  - "Giant/Tiny Relationships"
+  - "Giant Boy"
+  - "Feet"
+  - "Foot Fetish"
+  - "NSFW"
+  - "Vore"
+  - "Romance"
+  - "Teaching a giant kid how masturbation works"
+---
 
-Summary:
+# Colon's Pirate Pet
+
+> **Author:** Giantboyslit
+> **Source:** [AO3 Link](https://archiveofourown.org/works/86733151)
+> **Tags:** Macro/Micro, Elbaph giants, Giant/Tiny Relationships, Giant Boy, Feet, Foot Fetish, NSFW, Vore, Romance, Teaching a giant kid how masturbation works
+
+## Summary
 Jay is a renowned, powerful pirate who beats up Vice-Admirals for fun.
 Colon is a cheerful giant kid from Elbaph who dreams of having friends.
 When one becomes the other's tiny pet, their relationship blooms in unexpected ways.
 (Unfinished, will update as I write more.)
 
-==================================================
+---
 
 ### [Chapter 1](/works/86733151/chapters/229566316): Pinkie promise!
 

@@ -1,13 +1,28 @@
-Title: March's fantasy
-Author: Giantboyslit
-Source: https://archiveofourown.org/works/89508686
-Tags: Macro/Micro, Shrinking, Giant Boy, Shotacon, Uncle/Nephew Incest, Vore, Predator/Prey
+---
+title: "March's fantasy"
+author: "Giantboyslit"
+source: "https://archiveofourown.org/works/89508686"
+tags:
+  - "Macro/Micro"
+  - "Shrinking"
+  - "Giant Boy"
+  - "Shotacon"
+  - "Uncle/Nephew Incest"
+  - "Vore"
+  - "Predator/Prey"
+---
 
-Summary:
+# March's fantasy
+
+> **Author:** Giantboyslit
+> **Source:** [AO3 Link](https://archiveofourown.org/works/89508686)
+> **Tags:** Macro/Micro, Shrinking, Giant Boy, Shotacon, Uncle/Nephew Incest, Vore, Predator/Prey
+
+## Summary
 Mike has lived as his nephew March's pet ever since he shrank. He secretly drew hundreds of pictures of his macro fantasies starring his nephew. What happens when the secret gets out?
 (Unfinished, will update as I write more.)
 
-==================================================
+---
 
 ### [Chapter 1](/works/89508686/chapters/237732306): Discovery
 

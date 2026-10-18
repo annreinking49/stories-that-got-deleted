@@ -1,12 +1,25 @@
-Title: Bullying the weak
-Author: Giantboyslit
-Source: https://archiveofourown.org/works/86730916
-Tags: Macro/Micro, Shrinking, Giant Boy, NSFW, Shotacon
+---
+title: "Bullying the weak"
+author: "Giantboyslit"
+source: "https://archiveofourown.org/works/86730916"
+tags:
+  - "Macro/Micro"
+  - "Shrinking"
+  - "Giant Boy"
+  - "NSFW"
+  - "Shotacon"
+---
 
-Summary:
+# Bullying the weak
+
+> **Author:** Giantboyslit
+> **Source:** [AO3 Link](https://archiveofourown.org/works/86730916)
+> **Tags:** Macro/Micro, Shrinking, Giant Boy, NSFW, Shotacon
+
+## Summary
 Poor, innocent Cody gets bullied...
 
-==================================================
+---
 
 School hadn't started yet. It was so cold, that morning, that many kids probably wouldn't be coming to class. Behind the school, where the wall met the rusted chain‑link fence, a small boy named Cody pressed his back against the cold bricks, his shoulders hunched as if trying to shrink into the stone.
 

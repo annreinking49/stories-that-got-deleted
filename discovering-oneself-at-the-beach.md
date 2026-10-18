@@ -1,12 +1,30 @@
-Title: Discovering oneself at the beach
-Author: Giantboyslit
-Source: https://archiveofourown.org/works/86735621
-Tags: Macro/Micro, Shrinking, Giant Boy, Feet, Foot Fetish, Tinies as bugs, And that boy loves collecting bugs, Dehumanization, Crush Fetish, Shotacon
+---
+title: "Discovering oneself at the beach"
+author: "Giantboyslit"
+source: "https://archiveofourown.org/works/86735621"
+tags:
+  - "Macro/Micro"
+  - "Shrinking"
+  - "Giant Boy"
+  - "Feet"
+  - "Foot Fetish"
+  - "Tinies as bugs"
+  - "And that boy loves collecting bugs"
+  - "Dehumanization"
+  - "Crush Fetish"
+  - "Shotacon"
+---
 
-Summary:
+# Discovering oneself at the beach
+
+> **Author:** Giantboyslit
+> **Source:** [AO3 Link](https://archiveofourown.org/works/86735621)
+> **Tags:** Macro/Micro, Shrinking, Giant Boy, Feet, Foot Fetish, Tinies as bugs, And that boy loves collecting bugs, Dehumanization, Crush Fetish, Shotacon
+
+## Summary
 Uncle Dan and Lucas are having an outing - Dan enjoying time with his nephew, Lucas capturing bugs. An unexpected shrinking incident allows the two of them to discover each other's secrets... and Lucas is overjoyed to have a new, uncle-shaped bug to add to his collection!
 
-==================================================
+---
 
 ### [Chapter 1](/works/86735621/chapters/229573061): The beach
 

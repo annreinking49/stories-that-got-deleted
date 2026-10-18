@@ -1,12 +1,27 @@
-Title: Horny teenagers cannot be trusted
-Author: Giantboyslit
-Source: https://archiveofourown.org/works/86730491
-Tags: Macro/Micro, Shrinking, Shotacon, NSFW, Underage Sex - Freeform, noncon, Giant Boy
+---
+title: "Horny teenagers cannot be trusted"
+author: "Giantboyslit"
+source: "https://archiveofourown.org/works/86730491"
+tags:
+  - "Macro/Micro"
+  - "Shrinking"
+  - "Shotacon"
+  - "NSFW"
+  - "Underage Sex - Freeform"
+  - "noncon"
+  - "Giant Boy"
+---
 
-Summary:
+# Horny teenagers cannot be trusted
+
+> **Author:** Giantboyslit
+> **Source:** [AO3 Link](https://archiveofourown.org/works/86730491)
+> **Tags:** Macro/Micro, Shrinking, Shotacon, NSFW, Underage Sex - Freeform, noncon, Giant Boy
+
+## Summary
 Spencer shrank a while back, and his best friend Chad has been keeping him - mostly - safe since then. What happens when Chad entrusts his little brother to care for the tiny Spencer? One thing is for sure: Spencer is not enjoying it.
 
-==================================================
+---
 
 "No, no and NO! You are NOT leaving me alone to get your dick wet!"
 

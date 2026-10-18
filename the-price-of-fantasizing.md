@@ -1,12 +1,28 @@
-Title: The price of fantasizing
-Author: Giantboyslit
-Source: https://archiveofourown.org/works/86729011
-Tags: Macro/Micro, Shrinking, Shotacon, Giant Boy, Foot Fetish, Feet, Footjob (kinda), Tinies belong under boys' feet
+---
+title: "The price of fantasizing"
+author: "Giantboyslit"
+source: "https://archiveofourown.org/works/86729011"
+tags:
+  - "Macro/Micro"
+  - "Shrinking"
+  - "Shotacon"
+  - "Giant Boy"
+  - "Foot Fetish"
+  - "Feet"
+  - "Footjob (kinda)"
+  - "Tinies belong under boys' feet"
+---
 
-Summary:
+# The price of fantasizing
+
+> **Author:** Giantboyslit
+> **Source:** [AO3 Link](https://archiveofourown.org/works/86729011)
+> **Tags:** Macro/Micro, Shrinking, Shotacon, Giant Boy, Foot Fetish, Feet, Footjob (kinda), Tinies belong under boys' feet
+
+## Summary
 Bradley is a grown man with a crush on a young boy. The predator here is not the one you expect, however.
 
-==================================================
+---
 
 Bradley was a bad person. A bad, evil, fucked-up-in-the-head person who should never be trusted around kids, or so he thought of himself. He was a predator, a prowling threat that deserved to be in prison.
 

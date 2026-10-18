@@ -1,12 +1,30 @@
-Title: Time turned-on
-Author: Giantboyslit
-Source: https://archiveofourown.org/works/86731126
-Tags: Macro/Micro, Shrinking, Shotacon, Giant Boy, Mad Science, Crush Fetish, Foot Fetish, Feet, Stolen Identity, Tinies belong under boys' feet
+---
+title: "Time turned-on"
+author: "Giantboyslit"
+source: "https://archiveofourown.org/works/86731126"
+tags:
+  - "Macro/Micro"
+  - "Shrinking"
+  - "Shotacon"
+  - "Giant Boy"
+  - "Mad Science"
+  - "Crush Fetish"
+  - "Foot Fetish"
+  - "Feet"
+  - "Stolen Identity"
+  - "Tinies belong under boys' feet"
+---
 
-Summary:
+# Time turned-on
+
+> **Author:** Giantboyslit
+> **Source:** [AO3 Link](https://archiveofourown.org/works/86731126)
+> **Tags:** Macro/Micro, Shrinking, Shotacon, Giant Boy, Mad Science, Crush Fetish, Foot Fetish, Feet, Stolen Identity, Tinies belong under boys' feet
+
+## Summary
 In a world where only kids are vaccinated against the shrinking virus, one boy does not appreciate how much of a gift it is. He bemoans how small and shrimpy he is, without realizing he's basically a walking, breathing God to the shrinkees beneath him.
 
-==================================================
+---
 
 "Seriouslyyyyy?" Andrew whined at the librarian.
 

@@ -1,12 +1,29 @@
-Title: Sold
-Author: Giantboyslit
-Source: https://archiveofourown.org/works/93162136
-Tags: Macro/Micro, Shrinking, Giant Boy, Shotacon, Feet, Foot Fetish, Crush Fetish, Tinies belong under boys' feet, Master/Slave
+---
+title: "Sold"
+author: "Giantboyslit"
+source: "https://archiveofourown.org/works/93162136"
+tags:
+  - "Macro/Micro"
+  - "Shrinking"
+  - "Giant Boy"
+  - "Shotacon"
+  - "Feet"
+  - "Foot Fetish"
+  - "Crush Fetish"
+  - "Tinies belong under boys' feet"
+  - "Master/Slave"
+---
 
-Summary:
+# Sold
+
+> **Author:** Giantboyslit
+> **Source:** [AO3 Link](https://archiveofourown.org/works/93162136)
+> **Tags:** Macro/Micro, Shrinking, Giant Boy, Shotacon, Feet, Foot Fetish, Crush Fetish, Tinies belong under boys' feet, Master/Slave
+
+## Summary
 When Jeremy shrinks unexpectedly, he counts on his little brother Colton to take care of him... instead, Colton calls an interested buyer for the tiny now up for sale.
 
-==================================================
+---
 
 "Colton, put down that phone and focus on your plate," Jeremy sighed for the third time this meal.
 

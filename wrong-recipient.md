@@ -1,13 +1,27 @@
-Title: Wrong recipient
-Author: Giantboyslit
-Source: https://archiveofourown.org/works/86736051
-Tags: Macro/Micro, Shrinking, Giant Boy, Feet, Foot Fetish, Tinies belong under boys' feet
+---
+title: "Wrong recipient"
+author: "Giantboyslit"
+source: "https://archiveofourown.org/works/86736051"
+tags:
+  - "Macro/Micro"
+  - "Shrinking"
+  - "Giant Boy"
+  - "Feet"
+  - "Foot Fetish"
+  - "Tinies belong under boys' feet"
+---
 
-Summary:
+# Wrong recipient
+
+> **Author:** Giantboyslit
+> **Source:** [AO3 Link](https://archiveofourown.org/works/86736051)
+> **Tags:** Macro/Micro, Shrinking, Giant Boy, Feet, Foot Fetish, Tinies belong under boys' feet
+
+## Summary
 Ron is in love with Rick, a single father desperate for a shrunken person to bully. Ron takes the leap, gets himself shrunk... and ends up in the wrong hands.
 (Unfinished, will update as I write more.)
 
-==================================================
+---
 
 ### [Chapter 1](/works/86736051/chapters/229574211): Wrong recipient
 

@@ -1,13 +1,29 @@
-Title: Fateful FetLife meeting
-Author: Giantboyslit
-Source: https://archiveofourown.org/works/86735816
-Tags: Macro/Micro, Shrinking, Giant Boy, Feet, Foot Fetish, Vore, Brother/Brother Incest, Tinies belong under boys' feet
+---
+title: "Fateful FetLife meeting"
+author: "Giantboyslit"
+source: "https://archiveofourown.org/works/86735816"
+tags:
+  - "Macro/Micro"
+  - "Shrinking"
+  - "Giant Boy"
+  - "Feet"
+  - "Foot Fetish"
+  - "Vore"
+  - "Brother/Brother Incest"
+  - "Tinies belong under boys' feet"
+---
 
-Summary:
+# Fateful FetLife meeting
+
+> **Author:** Giantboyslit
+> **Source:** [AO3 Link](https://archiveofourown.org/works/86735816)
+> **Tags:** Macro/Micro, Shrinking, Giant Boy, Feet, Foot Fetish, Vore, Brother/Brother Incest, Tinies belong under boys' feet
+
+## Summary
 Tiny Oliver is constantly bullied by his normal-sized little brother Sid. Instead, he's looking for a giant Dom on FetLife and just found his match, Master Will... who is absolutely not Sid under a pseudonym, of course :)
 (Unfinished, will update as I write more.)
 
-==================================================
+---
 
 ### [Chapter 1](/works/86735816/chapters/229573531): Preparing for the meeting
 

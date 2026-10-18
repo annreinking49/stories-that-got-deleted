@@ -1,14 +1,30 @@
-Title: Conan's new detective toy
-Author: Giantboyslit
-Source: https://archiveofourown.org/works/86734851
-Tags: Macro/Micro, Shrinking, Giant Boy, Shotacon, Tinies belong under boys' feet, Feet, Foot Fetish, dubcon
+---
+title: "Conan's new detective toy"
+author: "Giantboyslit"
+source: "https://archiveofourown.org/works/86734851"
+tags:
+  - "Macro/Micro"
+  - "Shrinking"
+  - "Giant Boy"
+  - "Shotacon"
+  - "Tinies belong under boys' feet"
+  - "Feet"
+  - "Foot Fetish"
+  - "dubcon"
+---
 
-Summary:
+# Conan's new detective toy
+
+> **Author:** Giantboyslit
+> **Source:** [AO3 Link](https://archiveofourown.org/works/86734851)
+> **Tags:** Macro/Micro, Shrinking, Giant Boy, Shotacon, Tinies belong under boys' feet, Feet, Foot Fetish, dubcon
+
+## Summary
 Conan and Heiji discuss the case of the shrunken people of Ishikawa Prefecture... and what happened to the shrink ray involved.
 Spoilers: Heiji gets a new owner, and Conan gets a whimpering tiny toy.
 (Unfinished, will update as I write more.)
 
-==================================================
+---
 
 ### [Chapter 1](/works/86734851/chapters/229570761): Get owned, idiot
 

@@ -1,12 +1,29 @@
-Title: The most dangerous misunderstanding
-Author: Giantboyslit
-Source: https://archiveofourown.org/works/86729391
-Tags: Macro/Micro, Shrinking, Shotacon, Giant Boy, Crush Fetish, Foot Fetish, Feet, sandals, Tinies belong under boys' feet
+---
+title: "The most dangerous misunderstanding"
+author: "Giantboyslit"
+source: "https://archiveofourown.org/works/86729391"
+tags:
+  - "Macro/Micro"
+  - "Shrinking"
+  - "Shotacon"
+  - "Giant Boy"
+  - "Crush Fetish"
+  - "Foot Fetish"
+  - "Feet"
+  - "sandals"
+  - "Tinies belong under boys' feet"
+---
 
-Summary:
+# The most dangerous misunderstanding
+
+> **Author:** Giantboyslit
+> **Source:** [AO3 Link](https://archiveofourown.org/works/86729391)
+> **Tags:** Macro/Micro, Shrinking, Shotacon, Giant Boy, Crush Fetish, Foot Fetish, Feet, sandals, Tinies belong under boys' feet
+
+## Summary
 In a world where shrinking is commonplace, children are the scariest - because they can kill shrunken people in total impunity. A group of friends learn that lesson intimately when one of them is shrunk at home near his little brother, and they attempt to rescue him...
 
-==================================================
+---
 
 Kyle's lips were locked with Lissa's every second they did not get forced apart. Glued together, they tumbled out of the taxi and against the wall outside of Kyle's bedroom window.
 

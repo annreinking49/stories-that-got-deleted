@@ -1,14 +1,37 @@
-Title: Uncontrollable Urges
-Author: Giantboyslit
-Source: https://archiveofourown.org/works/86736306
-Tags: Macro/Micro, Shrinking, Giant Boy, Feet, Foot Fetish, Armpit Kink, Spit Kink, Scents & Smells, Mind Break, Mind Control, Brother/Brother Incest, Vore, Digestion, male pred, Slavery
+---
+title: "Uncontrollable Urges"
+author: "Giantboyslit"
+source: "https://archiveofourown.org/works/86736306"
+tags:
+  - "Macro/Micro"
+  - "Shrinking"
+  - "Giant Boy"
+  - "Feet"
+  - "Foot Fetish"
+  - "Armpit Kink"
+  - "Spit Kink"
+  - "Scents & Smells"
+  - "Mind Break"
+  - "Mind Control"
+  - "Brother/Brother Incest"
+  - "Vore"
+  - "Digestion"
+  - "male pred"
+  - "Slavery"
+---
 
-Summary:
+# Uncontrollable Urges
+
+> **Author:** Giantboyslit
+> **Source:** [AO3 Link](https://archiveofourown.org/works/86736306)
+> **Tags:** Macro/Micro, Shrinking, Giant Boy, Feet, Foot Fetish, Armpit Kink, Spit Kink, Scents & Smells, Mind Break, Mind Control, Brother/Brother Incest, Vore, Digestion, male pred, Slavery
+
+## Summary
 In this world, if shrunken people smell a giant's body odors, it reprograms their minds, making them into passive, mind-broken little things.
 Noah loves his shrunken brother, and his best friend at school. He also has a secret crush on the school bully, who made a habit of breaking the minds of tinies like Noah's loved ones...
 (Unfinished, will update as I write more.)
 
-==================================================
+---
 
 ### [Chapter 1](/works/86736306/chapters/229575061): Meet Noah
 

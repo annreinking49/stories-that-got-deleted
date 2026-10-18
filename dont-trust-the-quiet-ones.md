@@ -1,12 +1,29 @@
-Title: (Don't) Trust the Quiet Ones
-Author: Giantboyslit
-Source: https://archiveofourown.org/works/93780691
-Tags: Macro/Micro, Vore, Oral Vore, Digestion, Fatal Vore, Giant Boy, Child pred/Adult prey, Shrinking, Shotacon
+---
+title: "(Don't) Trust the Quiet Ones"
+author: "Giantboyslit"
+source: "https://archiveofourown.org/works/93780691"
+tags:
+  - "Macro/Micro"
+  - "Vore"
+  - "Oral Vore"
+  - "Digestion"
+  - "Fatal Vore"
+  - "Giant Boy"
+  - "Child pred/Adult prey"
+  - "Shrinking"
+  - "Shotacon"
+---
 
-Summary:
+# (Don't) Trust the Quiet Ones
+
+> **Author:** Giantboyslit
+> **Source:** [AO3 Link](https://archiveofourown.org/works/93780691)
+> **Tags:** Macro/Micro, Vore, Oral Vore, Digestion, Fatal Vore, Giant Boy, Child pred/Adult prey, Shrinking, Shotacon
+
+## Summary
 A teacher shrinks at school, two boys are there: the class bully, and the quiet teacher's pet. He trusts the quiet one.
 
-==================================================
+---
 
 Rory was writing on the blackboard when a paper bullet hit the back of his head. He turned around just in time to see Jeremy trying to hide the paper straw he shot it out of.
 

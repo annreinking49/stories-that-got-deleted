@@ -1,12 +1,30 @@
-Title: Teaching a goody-two-shoes to have fun!
-Author: Giantboyslit
-Source: https://archiveofourown.org/works/86728536
-Tags: Macro/Micro, Shrinking, Shotacon, Giant Boy, Feet, Foot Fetish, Brothers, Slavery, Shrunken people have no human rights, Tinies belong under boys' feet
+---
+title: "Teaching a goody-two-shoes to have fun!"
+author: "Giantboyslit"
+source: "https://archiveofourown.org/works/86728536"
+tags:
+  - "Macro/Micro"
+  - "Shrinking"
+  - "Shotacon"
+  - "Giant Boy"
+  - "Feet"
+  - "Foot Fetish"
+  - "Brothers"
+  - "Slavery"
+  - "Shrunken people have no human rights"
+  - "Tinies belong under boys' feet"
+---
 
-Summary:
+# Teaching a goody-two-shoes to have fun!
+
+> **Author:** Giantboyslit
+> **Source:** [AO3 Link](https://archiveofourown.org/works/86728536)
+> **Tags:** Macro/Micro, Shrinking, Shotacon, Giant Boy, Feet, Foot Fetish, Brothers, Slavery, Shrunken people have no human rights, Tinies belong under boys' feet
+
+## Summary
 Hugo is the kindest, best brother one could hope for after being a victim of the shrinking virus... until he meets a bad influence at school.
 
-==================================================
+---
 
 James stared at the TV, horrified, as he was most days when watching the news. Ever since the shrinking virus swept the nation, there were horror shows in the media all the time; a son crushing his mother underfoot after returning from school not knowing she caught the virus, a babysitter eaten alive by the boy he was looking over when he suddenly shrank, countless innocents trampled to death because they'd contracted the virus in the middle of a mall or a school hallway.
 

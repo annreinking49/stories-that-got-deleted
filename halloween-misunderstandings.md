@@ -1,12 +1,30 @@
-Title: Halloween misunderstandings
-Author: Giantboyslit
-Source: https://archiveofourown.org/works/86727626
-Tags: Vore, Digestion, Child pred/Adult prey, Son eats his father after a misunderstanding, Father-Son Relationship, male pred, Macro/Micro, Shrinking, Giant Boy, Shotacon
+---
+title: "Halloween misunderstandings"
+author: "Giantboyslit"
+source: "https://archiveofourown.org/works/86727626"
+tags:
+  - "Vore"
+  - "Digestion"
+  - "Child pred/Adult prey"
+  - "Son eats his father after a misunderstanding"
+  - "Father-Son Relationship"
+  - "male pred"
+  - "Macro/Micro"
+  - "Shrinking"
+  - "Giant Boy"
+  - "Shotacon"
+---
 
-Summary:
+# Halloween misunderstandings
+
+> **Author:** Giantboyslit
+> **Source:** [AO3 Link](https://archiveofourown.org/works/86727626)
+> **Tags:** Vore, Digestion, Child pred/Adult prey, Son eats his father after a misunderstanding, Father-Son Relationship, male pred, Macro/Micro, Shrinking, Giant Boy, Shotacon
+
+## Summary
 Cole has empathy for his food, so his dad teaches him that all food wants to be eaten... which backfires when he shrinks before his son. All food secretly wants to be eaten even when it begs for mercy, after all.
 
-==================================================
+---
 
 "B-but they look sad!" Cole protested, tears in his eyes, brandishing one of the gingerbread men he refused to eat. Sure enough, the neighbor had done a crap job of piping the faces, they all looked like they were screaming in agony. Chris rubbed the bridge of his nose, trying to find his patience—he needed to, as the single father of a 7yo boy.
 

@@ -1,13 +1,33 @@
-Title: Boruto meets Bugruto
-Author: Giantboyslit
-Source: https://archiveofourown.org/works/86732671
-Tags: Macro/Micro, Shrinking, Shotacon, Giant Boy, Tinies belong under boys' feet, Boruto goes back in time and finds his shrunken father, Crush Fetish, Foot Fetish, Feet, sandals, Vore, Hard Vore
+---
+title: "Boruto meets Bugruto"
+author: "Giantboyslit"
+source: "https://archiveofourown.org/works/86732671"
+tags:
+  - "Macro/Micro"
+  - "Shrinking"
+  - "Shotacon"
+  - "Giant Boy"
+  - "Tinies belong under boys' feet"
+  - "Boruto goes back in time and finds his shrunken father"
+  - "Crush Fetish"
+  - "Foot Fetish"
+  - "Feet"
+  - "sandals"
+  - "Vore"
+  - "Hard Vore"
+---
 
-Summary:
+# Boruto meets Bugruto
+
+> **Author:** Giantboyslit
+> **Source:** [AO3 Link](https://archiveofourown.org/works/86732671)
+> **Tags:** Macro/Micro, Shrinking, Shotacon, Giant Boy, Tinies belong under boys' feet, Boruto goes back in time and finds his shrunken father, Crush Fetish, Foot Fetish, Feet, sandals, Vore, Hard Vore
+
+## Summary
 Boruto goes back in time just as Naruto is shrunken by an enemy's justu. Boruto is looking for his dad... but this bug-sized guy crawling around his feet will make for a fun entertainment until he finds his child-aged father, or so he thinks.
 (Unfinished, will update as I write more.)
 
-==================================================
+---
 
 ### [Chapter 1](/works/86732671/chapters/229564926): Bolt meets Nalt
 

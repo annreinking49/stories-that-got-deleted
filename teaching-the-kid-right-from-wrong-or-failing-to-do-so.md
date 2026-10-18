@@ -1,14 +1,33 @@
-Title: Teaching the kid right from wrong (or failing to do so)
-Author: Giantboyslit
-Source: https://archiveofourown.org/works/89508906
-Tags: Macro/Micro, Shrinking, Giant Boy, Shotacon, Brother/Brother Incest, Foot Fetish, Feet, Vore, Soft Vore, Hard Vore, Naive giant
+---
+title: "Teaching the kid right from wrong (or failing to do so)"
+author: "Giantboyslit"
+source: "https://archiveofourown.org/works/89508906"
+tags:
+  - "Macro/Micro"
+  - "Shrinking"
+  - "Giant Boy"
+  - "Shotacon"
+  - "Brother/Brother Incest"
+  - "Foot Fetish"
+  - "Feet"
+  - "Vore"
+  - "Soft Vore"
+  - "Hard Vore"
+  - "Naive giant"
+---
 
-Summary:
+# Teaching the kid right from wrong (or failing to do so)
+
+> **Author:** Giantboyslit
+> **Source:** [AO3 Link](https://archiveofourown.org/works/89508906)
+> **Tags:** Macro/Micro, Shrinking, Giant Boy, Shotacon, Brother/Brother Incest, Foot Fetish, Feet, Vore, Soft Vore, Hard Vore, Naive giant
+
+## Summary
 Marc is an incel. Marc refuses to believe that tinies are really "people." Marc trained his little brother to see shrunken people as toys and snacks, too.
 Then Marc shrinks before his brother...
 (Unfinished, will update as I write more.)
 
-==================================================
+---
 
 ### [Chapter 1](/works/89508906/chapters/237732891): Irony
 
